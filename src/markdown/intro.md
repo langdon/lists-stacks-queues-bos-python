@@ -1,11 +1,8 @@
-![Monochrome self-portrait with camera](https://farm3.staticflickr.com/2939/14548190587_a2f25e3f05_h_d.jpg)
+![One of my sons and I](https://secure.gravatar.com/avatar/c4efc9117e1e55a59b0d922c6198e2f5)
 
-Florian Haas
+Langdon White
+@1angdon
 
-florian@hastexo.com
-
-
-A presentation
 # Toolbox
 That Might Blow Your Audience Away
 
